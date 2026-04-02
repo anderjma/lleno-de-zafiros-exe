@@ -1,1 +1,0 @@
-# lleno-de-zafiros-exe
